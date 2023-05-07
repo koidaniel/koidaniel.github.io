@@ -1,0 +1,1 @@
+# koidaniel.github.io
